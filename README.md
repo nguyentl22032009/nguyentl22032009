@@ -1,5 +1,4 @@
 
-![](https://static.wikia.nocookie.net/webarebears/images/8/8a/Capture.png/revision/latest?cb=20180811001436)
 
 ## Hello! Welcome to my portfolio
 
